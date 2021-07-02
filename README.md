@@ -1,2 +1,0 @@
-# ebrahim
-Gak hemrngi
